@@ -1,2 +1,2 @@
 ## Welcome to XR and LX's Honeylodge
-?????[???](https://babylonehy.github.io/Honeylodge/email/index.html)???
+你有一封新的[信](https://babylonehy.github.io/Honeylodge/email)哦哦哦！
